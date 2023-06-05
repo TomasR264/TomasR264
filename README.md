@@ -1,6 +1,5 @@
 ### Hey there 🚀
 
- • Systems Engineering Student at UTN FRBA
  
 
 
